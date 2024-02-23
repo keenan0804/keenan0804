@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @keenan0804
+- 🌱 I’m currently learning coding using arduino
+- 📫 How to reach me. idk
+- 😄 Pronouns: he him
+- ⚡ Fun fact: i can talk to cats
